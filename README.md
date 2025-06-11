@@ -1,1 +1,1 @@
-# PraneetProject
+# Praneet Portfolio
